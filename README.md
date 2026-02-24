@@ -1,0 +1,2 @@
+# 3e754d17-5c37-4232-9130-f39c573cfa54-hero-2
+Hero section variant 2 for 3e754d17-5c37-4232-9130-f39c573cfa54
